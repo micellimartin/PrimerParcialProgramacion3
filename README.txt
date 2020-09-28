@@ -1,1 +1,0 @@
-Guarde examen aqui.
